@@ -10,6 +10,4 @@ Here I am , Ishara Induranga , Freelancer ,Senior UI/UX Engineer(Part time) at S
 
 
 ---
-[![](https://visitcount.itsvg.in/api?id=isharainduranga &icon=0&color=0)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
