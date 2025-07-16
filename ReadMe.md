@@ -1,5 +1,5 @@
 # 💫 About Me:
-Here I am , Ishara Induranga , Freelancer , UI/UX Engineer. <br>I love designing and mainly focuses on the user and brings a user-experience mindset to design.I have 3+ years of UI/UX experience. Get in touch with me right away if you need assistance with designing or developing web, mobile, or desktop applications. 
+Here I am , Ishara Induranga , Freelancer , UI/UX Engineer. <br>I love designing and mainly focuses on the user and brings a user-experience mindset to design.I have 5+ years of UI/UX experience. Get in touch with me right away if you need assistance with designing or developing web, mobile, or desktop applications. 
 
 
 ## 🌐 Socials:
